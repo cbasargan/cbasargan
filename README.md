@@ -1,5 +1,5 @@
 - 👋 Hi there, I'm Cemal. 
-- 💫 Mathematician | Jr. Analyst
+- 💫 Mathematician | Jr. (Jr. Analyst)
 - ❤️ I'm studying Algebraic Topology
 - 📫 e-mail: cemalbasargan@hotmail.com
 - ##  My Twitter Account
